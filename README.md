@@ -5,4 +5,4 @@ Anggota Kelompok:
 Badzlina Atika Saalsabila (241401113)
 Agnes Refaya Agutine Silalahi (241401125)
 berikut link gdrive dokumentasi : https://docs.google.com/file/d/1B0SPuEk__DEJh8SUTTEVTKgNAY2ICops/edit?usp=docslist_api&filetype=msword
-berikut link youtube : 
+berikut link youtube : https://youtu.be/aufjHc-bumc?si=SqIzcC-DA1-MgUYo
